@@ -1,10 +1,10 @@
-Exclusivo IVPN Aplicación | soporte para torrent + soporte WireGuard es el mejor IVPN aplicación con soporte para torrent y soporte WireGuard. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/ivpn-xf61/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
