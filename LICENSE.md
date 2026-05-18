@@ -1,10 +1,10 @@
-حصرية IVPN تطبيق | دعم التورنت + دعم WireGuard هو أفضل IVPN تطبيق مع دعم التورنت و دعم WireGuard. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Viewkuresurrect.github.io/ivpn-xf61/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
